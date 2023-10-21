@@ -7,6 +7,8 @@ now u gotta find harry's dumb ahh and also potentially stop the alien from conqu
 the damn planet with a whole crew of shape humanoids
 
 warning: u wont be sane after like two specific levels
+
+this game is only ported to windows so sorry linux users :v 
 ---CLICK ON RELEASES TO PLAY NOW!---
 
 
