@@ -13,6 +13,8 @@ this game is only ported to windows so sorry linux users :v
 
 ---CLICK ON RELEASES TO PLAY NOW!---
 
+GAME INTRODUCTION: https://www.youtube.com/watch?v=uDJ_faK2Mts
+
 
 
 
